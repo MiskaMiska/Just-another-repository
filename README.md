@@ -1,2 +1,1 @@
-# hello-world1
-Lama was at its best year of the life enjoying rich city life of Berlin, 1989, when he met his future spouse. He decided to leave everything behind and move to a farm at a countryside to live a family life to its fullest. His friends did not welcome this dramatic change and has called him Lame lama since then. Lame lama, however, does not mind that since he and his spouse live happily together. While his friends continue on living in the capital, partying even at their mid-age, he enjoyes life at the countryside while watching his spouse grow into more beauty by everyday. And the difference in her beauty is, indeed, mind-blowing!
+
